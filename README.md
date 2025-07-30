@@ -27,8 +27,8 @@ Inoltre, offriamo anche un esclusivo **Manuale Patente B Premium**, con tecniche
 ## 🌐 Risorse e Link Utili
 
 * **Sito Ufficiale Manuale Patente**: [https://www.patentebmanuale.it](https://www.patentebmanuale.it) — trovi i collegamenti sia per il **manuale gratuito patente B** che per il nostro **manuale premium con trucchi patenteb e strategie vere**
-* **Scarica il Manuale PDF**: [patentebmanuale.it/manuale](https://t.me/patentebmanuale)
-* **Telegram Appunti Patente**: [https://t.me/patentebmanuale](https://t.me/patentebmanuale)
+* **Scarica il Manuale PDF**: [patentebmanuale.it/manuale](https://t.me/patentebmanuale/366)
+* **Canale Telegram Ufficiale**: [https://t.me/patentebmanuale](https://t.me/patentebmanuale)
 * **Gruppo Telegram di Supporto**: [https://t.me/patentebmanualegruppo](https://t.me/patentebmanualegruppo)
 * **Instagram Patente**: [https://www.instagram.com/patentebmanuale/](https://www.instagram.com/patentebmanuale/)
 * **TikTok Patente**: [https://www.tiktok.com/@patentebmanuale](https://www.tiktok.com/@patentebmanuale)
