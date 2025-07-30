@@ -1,6 +1,6 @@
-**🚦 PatentebManuale • La Prima Community Italiana per la Patente B 🚦**
+# **🚦 La Prima Community Italiana per la Patente B 🚦**
 
-Benvenuti su **PatentebManuale**, la **comunità patente B** n. 1 in Italia dedicata a chi desidera **prendere la patente B** con il miglior **manuale patente**, **quiz patente B** e **appunti patente** gratuiti! 🎉
+Benvenuti su **patentebmanuale**, la **comunità patente B** n. 1 in Italia dedicata a chi desidera **prendere la patente B** con il miglior **manuale patente**, **quiz patente B** e **appunti patente** gratuiti! 🎉
 
 ---
 
